@@ -1,1 +1,0 @@
-# basgiath-ash-ledger
